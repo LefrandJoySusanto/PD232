@@ -1,2 +1,2 @@
 # PD232
-PD STIKOM
+PD STIKOM Surabaya
